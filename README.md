@@ -33,7 +33,7 @@ Copy my skins style/art style and I WILL MICROWAVE YOU! >:[ I will pronounce you
 
 DNI LIST. (DO NOT INTERACT)
 
--Proshippers..... ewwwwww you support the following
+-Proshippers..... ewwwwww if you support the following
 
   -you support Illegal relationships (Pedophillia...or ANYTHING LIKE THAT!!! EWWWWW ): )
   
