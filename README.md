@@ -1,5 +1,7 @@
 HAIIII!!!! read!!! THIS!!!! ˚₊· ͟͟͞͞➳❥ I would also really appreciate it if you visit my Deviant Art or send me a gimmick through strawpage! Both are linked in my profile! ^_^)/
 
+MADE- MARCH 25th, 2025
+
 Introduction/General Information!!
 
 He/Him prefered! ੈ♡˳ They/Them is okay too!!! (She/Her only if I consider you close!!!<3)
@@ -54,7 +56,8 @@ DNI LIST. (DO NOT INTERACT)
   -Zoophillia (Romantical/sexual attraction to animals) 
   
   -AND ANYTHING ELSE THAT COUNTS AS A PROSHIP BUT I FORGOT TO LIST.
-  
+
+-People who use the term "groom" LIGHTLY. don't downplay it.
   
 -People who support groomers and are groomers. (people like Booknote or anyone else.)
 
@@ -70,9 +73,13 @@ TRYING TO MAKE IT LESS SERIOUS. LIKE.... PEOPLE, IN REAL LIFE, ACTUALLY EXPERIEN
 -People who downplay ANY SERIOUS/PROBLEMTATIC TOPICS IN GENERAL.
 
 -LGTBQ+ PHOBIC PEOPLE
+
   -People who DON'T RESPECT IT AT ALL AND MAKE IT A REASON TO HARASS PEOPLE.
+  
   -People who would hc people/oc's with something lgtbq+ WHEN ITS AGAINST THEIR RELIGION. Like, hcing an Islamic oc with something lgtbq+ WHEN ITS AGAINST THEIR RELIGION.
+  
   -Anything else that is considered lgtbq+ phobic
+  
   -People who think someone is lgtbq+ phobic because they can't support it because of RELIGION. IT'S THEIR RELIGION!!! Like when people think Islamic people is straight up
 lgtbq+ phobic in general. THEY CAN'T SUPPORT IT BECAUSE OF RELIGION BUT THEY CAN RESPECT PEOPLE IN THE LGTBQ.
 
