@@ -32,17 +32,29 @@ Copy my skins style/art style and I WILL MICROWAVE YOU! >:[ I will pronounce you
 .・。.・゜✭・.・✫・゜・。.
 
 DNI LIST. (DO NOT INTERACT)
+
 -Proshippers..... ewwwwww you support the following
+
   -you support Illegal relationships (Pedophillia...or ANYTHING LIKE THAT!!! EWWWWW ): )
+  
   -Kidnapper x Victim (THIS ALSO APPLIES LIAM X AIRY BTW..... AND ANY OTHER CONTESTANT.)
+  
   -Necrophillia
+  
   -Incest
+  
   -Stalker x Victim
+  
   -Teacher x student
+  
   -SA'er x Victim 
+  
   -(BAD, PROBLEMATIC PERSON) x victim 
+  
   -Zoophillia (Romantical/sexual attraction to animals) 
+  
   -AND ANYTHING ELSE THAT COUNTS AS A PROSHIP BUT I FORGOT TO LIST.
+  
   
 -People who support groomers and are groomers. (people like Booknote or anyone else.)
 
@@ -147,6 +159,8 @@ general, really! (a therapist or anyone like that.) Besides I'm usually facing/d
 getting help! I just think that I shouldn't be the first on the list to be vented to. Also please refrain from dumping a ton of things on me, I REALLY RECOMEND A PROFFESIONAL. ^_^;
 
 -Tell me your bounderies! I want to respect them and I wanna lessen the chance of any conflict!
+
+
 ![roblox-forsaken-forsaken-roblox](https://github.com/user-attachments/assets/d6a6f95a-b9de-4aa1-9469-356231273187)![jason-voorhees-jason](https://github.com/user-attachments/assets/5a8e14ff-939a-4fab-9e2c-60c75fc0d41d)
 
 
@@ -155,22 +169,31 @@ getting help! I just think that I shouldn't be the first on the list to be vente
 Fandoms IM IN (top more active-bottom less active) ‧͙⁺˚*･༓☾
 
 -Forsaken Roblox!!! (ELLIOT, CHANCE, AND 1x1x1x1 ARE PROBABLY SOME OF MY FAVES! YEA!!!)
+
 -Object Show community,., IWC PLEASE!! The osc is a great place but i had a lot of bad experinces within it personally!!! but in general its pretty decent yeah!
+
   -Objectifed!
+  
   -The Nightly Manor!
+  
   -Inanimate Insanity!
+  
   -(others that i probably forgot </3)
   
 -Transformers! I REALLY REALLY LIKE BUMBLEBEE!11!!! but im not a super hardcore fan </3 BUT I LIKE ITTT
+
   -Transformers Earthspark! Thrash and Breakdown are sososooooo COOL!!! 
+  
   -Transformers One!!
+  
   -Shattered Glass!
+  
   -(TRYING TO GET INTO NEW SHOWS AND COMICS BUT I DONT HAVE MUCH ACCESS </3)
-  ![fantastic-bumblebee](https://github.com/user-attachments/assets/5585afe3-2428-44f6-9d10-5ea0211fbdc6)
+
 
 -Dandy's World,.,. IWC!!! kinda like osc </3 SIGHHHH.... BUT THE GAME IS REALLY GOOD!! My favorite toon is probably Yatta or Looey!! AND RAZZLE AND DAZZLE MAYBE! ^_^ DAZZLE IS
 AWESOMEEE
-
+  ![fantastic-bumblebee](https://github.com/user-attachments/assets/5585afe3-2428-44f6-9d10-5ea0211fbdc6)
 ![forsaken-chance](https://github.com/user-attachments/assets/7a964894-552e-4289-a38c-d323b5021023)![roblox-chance](https://github.com/user-attachments/assets/b3b03e6b-3110-42ec-abc5-0e0a308f33ce)
 ![forsaken-forsaken-roblox](https://github.com/user-attachments/assets/9f4a5bf6-ca05-410a-acb4-7b71a5f6662a)![forsaken-chance](https://github.com/user-attachments/assets/9abc8dda-ecb7-4ab4-a1db-472e1b29cb9a)
 ![1x1x1x1-forsaken-roblox](https://github.com/user-attachments/assets/e3ebea41-a7db-46c5-a866-4df5c4fdb187)
