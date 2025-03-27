@@ -2,7 +2,17 @@ HAIIII!!!! read!!! THIS!!!! ˚₊· ͟͟͞͞➳❥ I would also really appreciat
 
 MADE- MARCH 25th, 2025
 
+LAST UPDATED- MARCH 27th, 2025 (Names, General Information)
+
 Introduction/General Information!!
+
+Names!(Might make a pronouns.cc pages idk)
+
+-Chance (PLEASEEE YES YES YES YES OFC🥺)
+
+-Elliot (Pleasese PLEASE OFC YES YES YES OFC PLS)🙏
+
+-Corvid (Yeah sure!) 
 
 He/Him prefered! ੈ♡˳ They/Them is okay too!!! (She/Her only if I consider you close!!!<3)
 
