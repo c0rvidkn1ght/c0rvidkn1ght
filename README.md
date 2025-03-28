@@ -1,4 +1,5 @@
-HAIIII!!!! read!!! THIS!!!! ˚₊· ͟͟͞͞➳❥ I would also really appreciate it if you visit my Deviant Art or send me a gimmick through strawpage! Both are linked in my profile! ^_^)/
+HAIIII!!!! read!!! THIS!!!! ˚₊· ͟͟͞͞➳❥ I would also really appreciate it if you visit my Deviant Art or send me a gimmick through strawpage! Both are linked in my profile! ^_^)/ 
+IF YOU LIKE FORSAKEN PLEASE INT WITH ME PLEASE <3!!!
 
 MADE- MARCH 25th, 2025
 
