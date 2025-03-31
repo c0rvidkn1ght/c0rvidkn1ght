@@ -3,9 +3,15 @@ IF YOU LIKE FORSAKEN PLEASE INT WITH ME PLEASE <3!!!
 
 MADE- MARCH 25th, 2025
 
-LAST UPDATED- MARCH 27th, 2025 (Names, General Information)
+LAST UPDATED- MARCH 31th, 2025 (+Socials)
 
 Introduction/General Information!!
+
+**Socials**
+(I post a lot of my art here!!)
+Tiktok: @_clovereberry
+
+Deviant Art: @C4FFINATED
 
 **Names!(Might make a pronouns.cc pages idk)**
 
