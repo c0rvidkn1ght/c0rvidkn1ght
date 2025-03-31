@@ -9,6 +9,7 @@ Introduction/General Information!!
 
 **Socials**
 (I post a lot of my art here!!)
+
 Tiktok: @_clovereberry
 
 Deviant Art: @C4FFINATED
