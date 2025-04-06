@@ -81,7 +81,7 @@ DNI LIST. (DO NOT INTERACT)
   
 -People who support groomers and are groomers. (people like Booknote or anyone else.)
 
--People who support/excuse SA'ers (like Potemer or etc)
+-People who support/excuse SA'ers/Gr00mers (like Potemer or etc)
 
 -Nazis and supporters of Nazis
 
