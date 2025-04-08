@@ -3,7 +3,7 @@ IF YOU LIKE FORSAKEN PLEASE INT WITH ME PLEASE <3!!!
 
 MADE- MARCH 25th, 2025
 
-LAST UPDATED- MARCH 31th, 2025 (+Socials)
+LAST UPDATED- APRIL 8th, 2025 (+Socials)
 
 Introduction/General Information!!
 
@@ -22,6 +22,10 @@ Deviant Art: @C4FFINATED
 
    -Corvid (Yeah sure!) 
 
+**I LOVE BEING GIVEN PARTY POPPERS BTW!!! (PONYTOWN) I LOVE PARTY POPPERS SMM**
+
+![Screenshot 2025-04-08 2 30 25 PM](https://github.com/user-attachments/assets/edff4276-1b2d-4df9-833c-9868e420fe42)
+(The Azure is AWESOME PERSON BTW!!! aka @mafiasdebt. HES SOO COOL!!! FOLLOW HIM!!)
 ｡ₓ ू ₒ ु ˚ ू ₒ ु ₓ｡
 
 He/Him prefered! ੈ♡˳ They/Them is okay too!!! (She/Her only if I consider you close!!!<3)
