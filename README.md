@@ -3,7 +3,13 @@ IF YOU LIKE FORSAKEN PLEASE INT WITH ME PLEASE <3!!!
 
 MADE- MARCH 25th, 2025
 
-LAST UPDATED- APRIL 8th, 2025 (+Socials)
+LAST UPDATED- APRIL 9th, 2025**(VERY IMPORTANT INFO)**
+
+**VERY IMPORTANT INFO/NEWS ABOUT ME- APRIL 9TH, 2025**
+
+**I might not be online as much anymore on PonyTown since I have limited access, meaning less 
+time to play. If I'm not online for more than a few weeks or days it didn't mean i quit. I love PonyTown and would love to continue playing it. But due to actions of others I have no control over. (My school district) Though I am trying to find new ways to gain access to Ponytown
+and my other socials. Thank you, -Elliot**
 
 Introduction/General Information!!
 
