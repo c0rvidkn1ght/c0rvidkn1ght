@@ -120,6 +120,7 @@ lgtbq+ phobic in general. THEY CAN'T SUPPORT IT BECAUSE OF RELIGION BUT THEY CAN
 -IF YOU'RE LIKE 12 OR SOMETHING. You really shouldn't be on the internet. 
   -PEOPLE WHO ARE 12 AND YOUNGER. Internet is really dangerous
   -People who are BODILY 12 and below
+  -(I KNOW THIS FROM EXPERIENCE, THE INTERNET IS REALLY BAD FOR 12 YR OLDS, LIKE REALLY REALLY BAD)
 
 -People who ship people in real life even if they're NOT in a relationship... THEY'RE REAL PEOPLE WITH ACTUAL FEELINGS.
 
