@@ -3,7 +3,7 @@ IF YOU LIKE FORSAKEN PLEASE INT WITH ME PLEASE <3!!!
 
 MADE- MARCH 25th, 2025
 
-LAST UPDATED- APRIL 9th, 2025**(VERY IMPORTANT INFO)**
+LAST UPDATED- May 10th, 2025 **(VERY IMPORTANT INFO)**
 
 **VERY IMPORTANT INFO/NEWS ABOUT ME- APRIL 9TH, 2025**
 
@@ -20,13 +20,9 @@ Tiktok: @_clovereberry
 
 Deviant Art: @C4FFINATED
 
-**Names!(Might make a pronouns.cc pages idk)**
 
-  -Chance (PLEASEEE YES YES YES YES OFC🥺)
+https://en.pronouns.page/@Elliot._.Dice
 
-  -Elliot (Pleasese PLEASE OFC YES YES YES OFC PLS)🙏
-
-   -Corvid (Yeah sure!) 
 
 **I LOVE BEING GIVEN PARTY POPPERS BTW!!! (PONYTOWN) I LOVE PARTY POPPERS SMM**
 
@@ -155,9 +151,9 @@ FANDOM IS NOT THE SAME AS THE SOURCE! (Yes, I'm talking about Dandy's World and 
 
 VERY IMPORTANT INFO ABOUT ME ﾟ+*:ꔫ:*﹤
 
--I prefer He/Him, but They/Them is okay too if you want!! Agender!! (You can use She/Her additionally if I consider you close!! ^_^)
+My pronouns page has a lot more info about me!! 
+https://en.pronouns.page/@Elliot._.Dice
 
--Arospec,. Quoiromantic and Demiromantic!! <3 *･῾ ᵎ⌇ ⁺◦ 💘 ✧.*
 
 -I can't roleplay well in general if I don't consider you a friend! </3
 
@@ -172,7 +168,7 @@ today!! </3 I would really apprciate it if you note this!!
 
 -I MISSPELL THINGS A LOT CAUSE I TYPE FAST!! brain is too fast for hands to comprehend!!
 
--I LIKE TALKING IN ALL APS, IT HELPS SHOW MY EMOTION BETTER. 
+-I LIKE TALKING IN ALL CAPS, IT HELPS SHOW MY EMOTION BETTER. 
 
 -ASK for permission before taking inspiration from my art or skins! This applies to friends too! I generally wouldn't approve but in some cases I will! And for friends I usually 
 approve! ^q^
@@ -200,37 +196,6 @@ getting help! I just think that I shouldn't be the first on the list to be vente
 
 
 ![roblox-forsaken-forsaken-roblox](https://github.com/user-attachments/assets/d6a6f95a-b9de-4aa1-9469-356231273187)![jason-voorhees-jason](https://github.com/user-attachments/assets/5a8e14ff-939a-4fab-9e2c-60c75fc0d41d)
-
-
-✧༝┉˚*❋ ❋*˚┉༝✧
-
-Fandoms IM IN (top more active-bottom less active) ‧͙⁺˚*･༓☾
-
--Forsaken Roblox!!! (ELLIOT, CHANCE, AND 1x1x1x1 ARE PROBABLY SOME OF MY FAVES! YEA!!!)
-
--Object Show community,., IWC PLEASE!! The osc is a great place but i had a lot of bad experinces within it personally!!! but in general its pretty decent yeah!
-
-  -Objectifed!
-  
-  -The Nightly Manor!
-  
-  -Inanimate Insanity!
-  
-  -(others that i probably forgot </3)
-  
--Transformers! I REALLY REALLY LIKE BUMBLEBEE!11!!! but im not a super hardcore fan </3 BUT I LIKE ITTT
-
-  -Transformers Earthspark! Thrash and Breakdown are sososooooo COOL!!! 
-  
-  -Transformers One!!
-  
-  -Shattered Glass!
-  
-  -(TRYING TO GET INTO NEW SHOWS AND COMICS BUT I DONT HAVE MUCH ACCESS </3)
-
-
--Dandy's World,.,. IWC!!! kinda like osc </3 SIGHHHH.... BUT THE GAME IS REALLY GOOD!! My favorite toon is probably Yatta or Looey!! AND RAZZLE AND DAZZLE MAYBE! ^_^ DAZZLE IS
-AWESOMEEE
   ![fantastic-bumblebee](https://github.com/user-attachments/assets/5585afe3-2428-44f6-9d10-5ea0211fbdc6)
 ![forsaken-chance](https://github.com/user-attachments/assets/7a964894-552e-4289-a38c-d323b5021023)![roblox-chance](https://github.com/user-attachments/assets/b3b03e6b-3110-42ec-abc5-0e0a308f33ce)
 ![forsaken-forsaken-roblox](https://github.com/user-attachments/assets/9f4a5bf6-ca05-410a-acb4-7b71a5f6662a)![forsaken-chance](https://github.com/user-attachments/assets/9abc8dda-ecb7-4ab4-a1db-472e1b29cb9a)
