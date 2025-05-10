@@ -24,6 +24,44 @@ Deviant Art: @C4FFINATED
 https://en.pronouns.page/@Elliot._.Dice
 
 
+**TAGS**
+
+DNI - Do not interact
+
+DNIUF - Do Not Interact unless friends
+
+DNIUCF - Do Not Interact Unless Close Friends
+
+DNCOVER - Do Not Cover 
+
+DNT - Do Not Touch
+
+DNTI/DNTInspo - Do not take inspiration (Getting inspired off of me, mainly all the time) 
+
+DNCopy - Do not copy (ALL THE TIME) 
+
+-UTF/UP - Unless partner/ Unless Theyfriend (they go by they/them) (DNIUP, DNTUP, etc) 
+
+-UF -Unless Friends (You'll find this at the end of some abreveations like DNIUF or DNTUF) 
+
+-UID - Unless I do
+
+SV - Semi Verbal
+
+NV - Nonverbal
+
+WTI/W2I - Whisper to Interact (mainly always offtab or afk, this will ensure the chance I 
+answer you! 
+
+SVUF - Semi verbal unless friends
+
+NVUF - Nonverbal Unless Friends
+
+IWC - Interact with caution (Bad mood or something bad happened, or both) 
+
+IWCare - Interact with care (Same thing here) 
+
+
 **I LOVE BEING GIVEN PARTY POPPERS BTW!!! (PONYTOWN) I LOVE PARTY POPPERS SMM**
 
 ![Screenshot 2025-04-08 2 30 25 PM](https://github.com/user-attachments/assets/edff4276-1b2d-4df9-833c-9868e420fe42)
