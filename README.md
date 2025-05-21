@@ -3,13 +3,17 @@ IF YOU LIKE FORSAKEN PLEASE INT WITH ME PLEASE <3!!!
 
 MADE- MARCH 25th, 2025
 
-LAST UPDATED- May 10th, 2025 **(VERY IMPORTANT INFO)**
+LAST UPDATED- May 20th, 2025
 
-**VERY IMPORTANT INFO/NEWS ABOUT ME- APRIL 9TH, 2025**
+Basic Introduction!!
 
-**I might not be online as much anymore on PonyTown since I have limited access, meaning less 
-time to play. If I'm not online for more than a few weeks or days it didn't mean i quit. I love PonyTown and would love to continue playing it. But due to actions of others I have no control over. (My school district) Though I am trying to find new ways to gain access to Ponytown
-and my other socials. Thank you, -Elliot**
+I love making friends!! I do love getting to know people ^O^ 
+
+I loveee cuddles!! c*h any time!! Cudcomf!! Unless stated otherwise, c*h anytime!
+
+Diagnosed with GAD, also known as Generalized Anxiety Disorder, please be patient! Tone indicators are encouraged.
+
+W2I is encouraged too! Sometimes a late responder though!
 
 Introduction/General Information!!
 
